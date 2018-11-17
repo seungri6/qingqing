@@ -1,5 +1,3 @@
-fhksjhfjhdfjka
-kfakkhdfak# qingqing
-kdjflsdjflksdfokd
-dflkaldjklflkfj
-jkdklalkfklafkl
+BIGBANG
+seungri
+g-dargon
